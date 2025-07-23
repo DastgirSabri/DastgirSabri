@@ -24,7 +24,7 @@ I'm committed to delivering projects on time and within budget while providing e
 
 - 📧 Email: info@dastgirsabri.com / dastgirpgc317@gmail.com
 - 🔗 LinkedIn: https://www.linkedin.com/in/dastgirsabri/
-- 🌐 Website: www.dastgirsabri.com / www.prosoftic.com / www.sequoiasetups.com / www.theiconicnews.com
+- 🌐 Website: www.dastgirsabri.com / www.portfolio.dastgirsabri.com / www.prosoftic.com
 
 Thank you for visiting my GitHub profile, and I look forward to working with you on your next project!
 
